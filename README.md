@@ -84,13 +84,21 @@
 37.【优尚舞姿】 500G – 168元
 
 ►►客服部：저에게 연락（contact us）私に連絡して
+
 Email : tianbing99@gmail.com
+
 KaKao Talk : tianbing99
+
 LINE : tianbing9999
+
 Instagram ： tianbingtv
+
 Telegram : https://t.me/tianbing99
+
 Twitter ：https://twitter.com/tianbing8
+
 Telegram Group : https://t.me/wanzishe
+
 海外的朋友可以用PAYPAL付款哦 ^^ (For foreign friends, please pay to this address )  http://www.paypal.me/tianbing99
 
 大家可以加电报群！！！电报群第一时间更新预览哦！
